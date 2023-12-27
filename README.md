@@ -4,4 +4,4 @@ Completed this project as a part of a value added course by UNITED NETWORK OF PR
 
 PBIX FILE- https://drive.google.com/file/d/1msKAuHh_bgPtENRoCl-BLujPN8071SMT/view?usp=sharing
 
-PDF FILE- https://drive.google.com/file/d/1_OishC5sutncVRHEBQD6XI49c8wHtmG7/view?usp=sharing
+PDF FILE- https://drive.google.com/file/d/1y-1SWD2un7-GrSRrvrChQtAarpLsEYKC/view?usp=sharing
