@@ -4,4 +4,4 @@ Completed this project as a part of a value added course by UNITED NETWORK OF PR
 
 PBIX FILE- https://drive.google.com/file/d/1msKAuHh_bgPtENRoCl-BLujPN8071SMT/view?usp=sharing
 
-PDF FILE- "C:\Users\saisu\Downloads\UNP-PROJECT-BI-WITH-POWER BI_HR.pdf"
+PDF FILE- https://drive.google.com/file/d/1UZjeIDTS2yV2N5s8y_dM5gHgR7nZz0zM/view?usp=sharing
